@@ -1,2 +1,2 @@
-Tamamen vibe codelanmistir denemek için [tıklayın](https://www.101okey.pages.dev)
+Tamamen vibe codelanmistir denemek için [tıklayın](https://101okey.pages.dev)
 mobil desteği yok.
